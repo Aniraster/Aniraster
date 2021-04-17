@@ -3,7 +3,7 @@ biggie chungus
 haha but for real thoe
 
 im Aniraster/Animaster
-i make ai anime girls
+i like ai
 (<a href="https://twitter.com">@Aniraster_</a>)
 
 <!---
